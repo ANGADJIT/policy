@@ -1,4 +1,4 @@
-### Privacy Policy
+## Privacy Policy
 
 Angadjit singh built the One Click To Chat app as a Free app. This SERVICE is provided by Angadjit singh at no cost and is intended for use as is.
 
